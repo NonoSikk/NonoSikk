@@ -8,3 +8,5 @@ Some "basic" stuff for now:
 - 🤔 I’m looking for help with becoming a great successful web dev
 - 💬 Ask me about everything you wanna know
 - 📫 How to reach me on Discord NonoSikk#6903
+
+Enjoy the Show 😏
